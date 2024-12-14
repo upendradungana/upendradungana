@@ -4,8 +4,8 @@
 💞️ I’m looking to collaborate on projects involving innovative web applications, apps with chat functionalities, and sustainable tech solutions.  
 📫 How to reach me: [kalay77831630@gmail.com or +975-77831***]  
 😄 Pronouns: He
-⚡ Fun fact: My dream is to travel, and I'm passionate about learning crazy and intelligently stuff...I can get my hands on you f cahnce on any thing as per i myself (my be not 😂)!
+⚡ Fun fact: My dream is to travel, and I'm passionate about learning crazy, stupid, intreasting stuff...I can get my hands on you if chance(but expecting support and guide), on any thing as per i know myself (my be not 😂)!
 
-Feel free to contact me but with expectation of great support!
+Feel free to contact me & support me!
 
 
